@@ -20,7 +20,7 @@
 
 •	Fachrechner
 
-•	Weather
+•	Wetter
 
 •	Buchhandlung
 
