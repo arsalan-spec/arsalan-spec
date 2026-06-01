@@ -6,7 +6,7 @@
 
 🚀 Besonders interessiert an praxisnahen Projekten und echter Anwendung von Code 
 
-🌐 Teamorientiert und Mehrsprachig (Deutsch : C1(TELC B2 Zertifikat , Mündlicher Ausdruck 71 von 75) - Englisch : B2 - Persisch Mutter : Sprache)
+🌐 Teamorientiert und Mehrsprachig (Deutsch : C1(TELC B2 Zertifikat) - Englisch : B2 - Persisch Mutter : Sprache)
 
 
 ## 🌐 Socials:
